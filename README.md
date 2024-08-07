@@ -1,6 +1,6 @@
 # Gabriel-William
 
-![]https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS2BGSp87WwyYlukFbXWYPGsqotbi3Ofog5bQ&s
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS2BGSp87WwyYlukFbXWYPGsqotbi3Ofog5bQ&s)
 
 Bem vindo ao meu perfil!
 Meu nome é Gabriel William, Ou melhor Biel Will para simplificações
